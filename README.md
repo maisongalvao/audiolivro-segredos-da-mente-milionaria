@@ -79,6 +79,7 @@ Ações:
 Rendimento anual.
 Patrimônio líquido.
 
+## Arquivo de riqueza.
 ### 3 - As pessoas ricas assumem o compromisso de serem ricas as pessoas de mentalidade pobre gostariam de ser ricas.
 Crenças dominantes.
 Príncipio de riqueza: O principal motivo que impede a maioria das pessoas de saber o que quer é não saber o que quer.
@@ -90,10 +91,60 @@ Se comprometer.
 Ações: Escrever um pequeno parágrafo do porque enriquecer é importante pra você.
 Procure alguém que possa te ajudar e declare um compromisso de ser milionário.
 
+## Arquivo de riqueza
+### 4 - As pessoas ricas pensam grande as pessoas de mentalidade pobre pensam pequeno.
+Príncipio de riqueza: A sua remuneração se dará na proporção direta que você agregar de acordo com o mercado.
 
+Oferta x demanda x qualidade x quantidade.
+O propósito da nossa vida é agregar valor para as pessoas da nossa geração e da geração seguinte.
 
+Empresário pessoa que lucra solucionando problemas de pessoas alheias.
 
+Fernão capelo gaivota.
 
+Declaração: Eu penso grande escolho ajudar milhões de pessoas
+Ações: liste seus talentos naturais.
+Escreva ou faça como você ajudaria o maior número de pessoas
+
+## Arquivo de riqueza 5
+### 5 - As pessoas ricas focalizam oportunidades as pessoas de mentalidade pobre focalizam obstáculos.
+
+- Potencial de crescimento x Potencial de perda.
+- Copo meio vazio ou meio cheio.
+- Quanto maior a recompensa maior o risco.
+- As pessoas ricas focalizam o que elas querem e as pobres o que não querem.
+- Concentre-se nas oportunidades e terá oportunidades.
+- Dedique seu tempo e sua energia a conquistar aquilo que você quer.
+- Não fique apagando incêndios.
+- Ganhar -> Conservar -> Multiplicar.
+- Preparar -> Fogo -> Apontar.
+- A ação sempre vence a inação.
+- Pessoas de mentalidade pobre não confiam em si mesmas, querem saber tudo de antemão.
+
+Declaração: "Eu focalizo as oportunidades e não os obstáculos eu tenho uma mente milionária."
+
+Ações: 
+-- 1 - Entre num projeto que tenha tido vontade de começar.
+-- 2 - Pratique o otimismo.
+-- 3 - Focalize o que você tem e não o que você não tem.
+Tarefa:
+Fazer uma lista de 10 coisas pelas quais se sente grato e ler em voz alta.
+
+## Arquivo de riqueza 6.
+```
+6 - As pessoas ricas admiram outros indivíduos ricos e bem sucedidos as pessoas de mentalidade pobre guardam ressen
+timento de quem é rico e bem sucedido.
+```
+Cuidado com a energia negativa da inveja.
+Ganhar dinheiro honestamente é pregar o evangelho.
+Aqueles que possuem a sua própria casa se tornam mais dignos honestos e puros.
+Ser confiável.
+
+Príncipio de riqueza: Abençoe aquilo que você quer.
+Declaração: Eu admiro as pessoas ricas eu abençoo as pessoas ricas e vou ser uma pessoa rica também, eu tenho uma mente 
+milionária.
+Ações: Abençoe aquilo que você quer, coisas boas e as pessoas envolvidas.
+Escreva uma carta dizendo o quanto voc6o admira e respieta por suas realizações.
 
 
 
