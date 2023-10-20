@@ -68,8 +68,9 @@ A energia negativa é contagiosa.
 DESAFIO: Não reclamar de nada durante 7 dias.
 ```
 Vítimas querem atenção.
-
+```
 ### 2 - As pessoas ricas jogam o jogo do dinheiro para ganhar. As pessoas de mentalidade própria jogam para não perder.
+```
 Se o seu objetivo é ter algum conforto é provável que você nunca fique rico mas se sua meta é enriquecer é provável que você alcance uma situação ricamente
 confortável.
 Mire nas estrelas.
@@ -80,7 +81,9 @@ Rendimento anual.
 Patrimônio líquido.
 
 ## Arquivo de riqueza.
-### 3 - As pessoas ricas assumem o compromisso de serem ricas as pessoas de mentalidade pobre gostariam de ser ricas.
+```
+3 - As pessoas ricas assumem o compromisso de serem ricas as pessoas de mentalidade pobre gostariam de ser ricas.
+```
 Crenças dominantes.
 Príncipio de riqueza: O principal motivo que impede a maioria das pessoas de saber o que quer é não saber o que quer.
 Poder da intenção.
@@ -92,7 +95,9 @@ Ações: Escrever um pequeno parágrafo do porque enriquecer é importante pra v
 Procure alguém que possa te ajudar e declare um compromisso de ser milionário.
 
 ## Arquivo de riqueza
-### 4 - As pessoas ricas pensam grande as pessoas de mentalidade pobre pensam pequeno.
+``` 
+4 - As pessoas ricas pensam grande as pessoas de mentalidade pobre pensam pequeno.
+```
 Príncipio de riqueza: A sua remuneração se dará na proporção direta que você agregar de acordo com o mercado.
 
 Oferta x demanda x qualidade x quantidade.
@@ -107,8 +112,9 @@ Ações: liste seus talentos naturais.
 Escreva ou faça como você ajudaria o maior número de pessoas
 
 ## Arquivo de riqueza 5
-### 5 - As pessoas ricas focalizam oportunidades as pessoas de mentalidade pobre focalizam obstáculos.
-
+```
+ 5 - As pessoas ricas focalizam oportunidades as pessoas de mentalidade pobre focalizam obstáculos.
+```
 - Potencial de crescimento x Potencial de perda.
 - Copo meio vazio ou meio cheio.
 - Quanto maior a recompensa maior o risco.
@@ -144,9 +150,86 @@ Príncipio de riqueza: Abençoe aquilo que você quer.
 Declaração: Eu admiro as pessoas ricas eu abençoo as pessoas ricas e vou ser uma pessoa rica também, eu tenho uma mente 
 milionária.
 Ações: Abençoe aquilo que você quer, coisas boas e as pessoas envolvidas.
-Escreva uma carta dizendo o quanto voc6o admira e respieta por suas realizações.
+Escreva uma carta para alguém bem sucedido em seu campo dizendo o quanto você o admira e respieta por suas realizações.
 
 
+## Arquivo de riqueza 7.
+```
+7 - As pessoas ricas buscam a companhia de indíviduos positivos e bem sucedidos as pessoas de mentalidade pobre buscam
+a companhia de indíviduos negativos e fracassados.
+```
+As pessoas ricam se motivam com outras pessoas ricas.
+As pessoas ricas buscam vencedores.
+
+Declaração: Eu imito as pessoas ricas e bem sucedidas. Se elas podem eu também posso.
+
+Ações:
+1 - Leia a bibliografia de alguém que é rico e bem sucedido.
+2 - Associe-se a um clube de alta classe.(tênis, golfe)
+3 - Identifique uma pessoa situação ou pessoa que puxa você pra baixo.
+4 - Para de assistir bobagens na tv e fique longe de conversas destrutivas.
+
+## Arquivo de riqueza 8.
+```
+8 - As pessoas ricas gostam de se promover as pessoas de mentalidade pobre não apreciam vendas e nem auto-promoção.
+```
+Venda seu próprio peixe.
+Pai rico e pai pobre.
+Príncipio de riqueza: Os líderes ganham muito mais dinheiro que os seguidores.
+Se você acreditar que o que tem a oferecer pode ser verdadeiramente útil para as pessoas poderá ficar verdadeiramente
+rico.
+
+Ações: 
+1 - Dê uma nota a um produto ou serviço que você está oferecendo atualmente ou pensando em oferecer.
+2 - Leia livros e faça cursos de marketing e vendas.
+
+## Arquivo de riqueza 9.
+```
+9 - As pessoas ricas são maiores que seus problemas as pessoas de mentalidade pobre são menores que seus problemas.
+```
+
+Príncipio de riqueza: O segredo do sucesso não é tentar evitar os problemas nem se esquivar e se livrar deles mas
+crescer pessoalmente para se tornar maior que eles.
+
+Não importa o tamanho do problema o que importa é seu próprio tamanho.
+Seu mundo exterior é um simples reflexo do seu mundo interior.
+
+Princípio de riqueza: Se você tem um grande problema isso significa apenas que está sendo uma pessoa pequeno.
+
+Conservar a riqueza é tão difícil quando ganhar.
+Universo abomina o vazio.
+Os ricos não fogem não se esquivam das adversidades.
+
+Declaração: Sou maior que meus problemas.
+
+Ações: 
+1 - Sempre que estiver diante de algum problema aponte para si mesmo e repita pequeno, pequeno e pequeno.
+2 - Registre por escrito um problema e liste 10 medidas para resolvê-lo.
 
 
+## Arquivo de riqueza 10.
+```
+10 - As pessoas ricas são excelentes recebedoras as pessoas de mentalidade pobre são péssimas recebedoras.
+```
+A pessao não se sente digna ou merecedora.
+Baixo-autoestima.
+Reconheça que ser ou não merecedor pode ser apenas uma história inventada.
+Merecedor.
+Princípio de riqueza: Se você diz que é merecedor então é se diz que não é merecedor então não é.
+
+Príncipio de riqueza:
+* O dinheiro intensificará aquilo que você já é.
+* Você faz uma coisa do mesmo modo que faz todas as outras.
+Para todo doador tem que haver um recebedor para todo recebedor tem que haver um doador.
+Tudo é energia. 
+Se existe algo extraordinário que alguém não está querendo receber consuza até mim.
+Enriqueça e ajude as pessoas.
+
+Declaração: 
+* Sou um excelente recebedor estou aberto a receber grandes quantidades de dinheiro ao longo da vida.
+
+Ações:
+1 - Pratique ser um recebedor, toda vez que receber um elogio diga obrigado.
+2 - Todo dinheiro achado e recebido declare eu sou um imã que atrai dinheiro.
+3 - Trate-se com carinho. 
 
