@@ -233,3 +233,69 @@ Ações:
 2 - Todo dinheiro achado e recebido declare eu sou um imã que atrai dinheiro.
 3 - Trate-se com carinho. 
 
+###### _23/10/2023_
+## Arquivo de riqueza 11. 
+```
+11 - As pessoas ricas preferem ser remuneradas por seus resultados as de mensalidade preferem ser remuneradas pelo tempo
+que despendem.
+```
+Príncipio de riqueza: 
+Não há nada errado em ter um contracheque estável, a não ser que ele interfira na capacidade que você possui de ganhar o
+que merece e é esse o problema ele geralmente interfere.
+
+As vezes o preço da segurança é a riqueza.
+Pessoas ricas costumam ter o próprio negócio.
+Pessoas de mentalidade pobre trocam o tempo por dinheiro.
+
+**Príncipio de riqueza: Nunca estabeleça um teto para seus rendimentos.**
+
+Exemplo: Vendedor de canetas x massagista.
+
+Você jamais ficará rico trabalhando para outra pessoa por um salário.
+Marketing de rede
+
+Declaração: 
+Prefiro ser remunerado com base em meus resultados eu tenho uma mente milionára.
+
+Ações: 
+Proponha ao empregador receber com base nos resultados da empresa.
+2 - Se você está empregado e não ganha o que merece com base nos seus resultados, abrir um negócio próprio.
+
+## Arquivo de riqueza 12.
+```
+12 - As pessoas ricas pensam posso ter as duas coisas as pessoas de mentalidade pobre pensam posso ter uma coisa ou
+outra.
+```
+
+Diferença de perspectiva.
+Lema: Nunca se tem o bastante, e não se pode ter tudo.
+
+As pessosa de mentalidade probre sempre escolhem ou uma coisa ou outra enquanto as pessoas de mentalidade rica sempre
+pensam em ter as duas coisas.
+
+Dinheiro proporciona liberdade.
+Dinheiro e felicidade não são mutuamente excludentes.
+As duas coisas são indisensáveis.
+
+Príncipio de riqueza:
+As pessoas riquezas acreditam que podem ter o bolo e comer o bolo, as pessoas que tem um pensamento de classe média creem que bolo é doce
+mais por isso só devem comer um pedacinho, as pessoas de mentalidade pobre por acreditarem que não merecem bolo pedem uma rosquinha
+se concentram no furo e se perguntam porque não tem nada.
+
+Ser puro e espiritualizado não tem haver com sua conta bancária.
+
+Declaração: Eu sempre penso eu posso ter as duas coisas eu tenho uma mente milionária.
+Ações:
+1 - Sempre que precisar escolher pergunte-se porque não posso ter ambas.
+2 - Dinheiro gera valor pra todos.
+3 - É possível ser bondoso, generoso, afetuoso e rico.
+
+
+
+
+
+
+
+
+
+
