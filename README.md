@@ -291,6 +291,86 @@ Ações:
 3 - É possível ser bondoso, generoso, afetuoso e rico.
 
 
+## Arquivo de riqueza 13.
+```
+13 - As pessoas ricas focalizam seu patrimônio líquido as pessoas de mentalidade pobre focalizam seu rendimento mensal.
+```
+Quanto você ganha x qual o valor o seu patrimônio.
+
+Prícipio de riqueza
+A verdadeira medida da riqueza é o seu patrimônio líquido.
+
+O patrim6onio líquido é a medida da riqueza.
+Diferença entre rendimentos e patrimônio líquido.
+
+Rendimento ativo e passivo.
+Rendimento ativo = salário.
+Rendimento passivo = Dinheiro que você recebe sem trabalhar.
+Quanto mais ganha mais gasta.
+Pessoas ricas são excelentes investidoras.
+Pessoas de mentalidade pobre acham que investimento é coisa de rico.
+
+Simplificação
+Reduzir os gastos.
+Rendimentos em si mesmos não criam riquezas.
+Conheça seu patrimônio líquido até o último centavo.
+Aquilo que focalizamos se expande.
+
+`A lei de parkinsom` - 
+`A despesa cresce na proporção direta da receita.`
+
+### Príncipio de riqueza:
+_**É Onde a atenção está a energia flui e o resultado aparece.**_
+
+### Declaração:
+_Estou concentrando na construção do meu patrimônio líquido._Eu tenho uma mente milionária.
+
+### Açoes:
+1 - Mantenha-se concentrado nos 4 fatores do patrimônio líquido.
+   1.1 - Aumentar os rendimentos.
+   1.2 - Engordar a poupança.
+   1.3 - Elevar o retorno dos investimentos.
+   1.4 - Diminuir os gastos pessoais simplificando o seu estilo de vida.
+
+2 - Crie um extrato do seu patrimônio líquido.Tudo o que tem - tudo o que deve.
+3 - Contrate um consultor financeiro bem sucedido.
+
+## Arquivo de riqueza 14.
+```
+14 - As pessoas ricas administram bem o seu dinheiro as pessoas de mentalidade probre administram mal o seu dinheiro.
+```
+Administrar aumenta a liberdade.
+Porque premiar o erro.
+Você não terá mais até provar que é capaz de lidar com o que já possui.
+
+Antes de conseguir fortuna você precisa adiquirir o hábito e a capacidade de administrar pouco dinheiro.
+Conta da liberdade financeira.
+Não importa se você tem uma grande forturna ou praticamente nada precisa começar a administrar já.
+Pote da liberdade financeira.
+Conta da diversão.
+Fortalecer o músculo recebedor.
+Conta de poupança para despesas de longo prazo.(10%)
+Conta da instrução financeira.(10%)
+Conta das necessidades básicas.(50%)
+Conta das doações.(10%)
+Ou você controla o seu dinheiro ou ele o controlará.
+
+Declaração: 
+Sou um excelente administrador de dinheiro eu tenho uma mente milionária.
+
+Ações: 
+1 - 
+2 - Crie o pote da liberdade financeira.
+3 - Abra a conta da diversão.
+4 - Independente de quanto dinheiro possui começe a administrar agora.
+
+## Arquivo de riqueza 15.
+```
+14 - As pessoas ricas põe o seu dinheiro para dar duro para elas as pessoas de mentalidade pobredão duro pelo seu
+dinheiro.
+```
+
+
 
 
 
