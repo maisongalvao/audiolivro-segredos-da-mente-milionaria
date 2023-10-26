@@ -366,14 +366,134 @@ Ações:
 
 ## Arquivo de riqueza 15.
 ```
-14 - As pessoas ricas põe o seu dinheiro para dar duro para elas as pessoas de mentalidade pobredão duro pelo seu
-dinheiro.
+15 - As pessoas ricas põe o seu dinheiro para dar duro para elas as pessoas de mentalidade pobredão duro pelo seu
+dinheiro.As pessoas de mentalidade dão duram pelo seu dinheiro.
 ```
+Sem rendimento passivo ninguém consegue ser fiananceiramente livre.
+Indivíduos de mentalidade pobre são governados com a satisfação imediata.
+
+Terapia do varejo.
+
+Quem pensa pequeno trabalha pra ganhar o dia de hoje e quem é rico trabalha pensado no amanhã.
+Ricos compram ativos pobres passivos.
+
+Cada real uma semente.
+Compre imóveis. Qualquer Imóvel é melhor que nenhum.
+
+Príncipio de riqueza.
+Os ricos consideram cada real que possuem uma semente a ser plantada que podem render outros 100 que podem ser replanta-
+dos pra render outros 1000 e assim por diante.
+
+Familiarize-se com tipos de investimento.
+Começe a investir e diversifique.
+
+Declaração:
+O meu dinheiro trabalha pra mim e se multiplica.Eu tenho uma mente milionária.
+
+Ações
+1 - Instrua-se assista e leia sobre ações.
+2 - Mude o foco do rendimento ativo para o passivo.
+3 - Não espere para adquirir imóveis compre-os e espere.
+
+## Arquivo de riqueza 16.
+```
+16 - As pessoas ricas agem apesar do medo as pessoas de mentalidade pobre deixam-se paralizar pelo medo.
+```
+Pensamentos -> Sentimentos -> Ações -> Resultados.
+
+Príncipio de riqueza
+A ação é a ponte entre o mundo interior e o exterior.
+
+Livro - Como superar o medo.
+
+Príncipio de riqueza
+O verdadeiro guerreiro é capaz de domar a serpente.
+Não é necessário se livrar do medo para vencer precisamos agir apesar do medo.
+Ou você é alguém que se deixa deter ou não se deixa deter.
+
+Príncípio de riqueza
+Se você só estiver disposto a fazer o que é fácil a vida será difícil.
+
+Confortável é o lugar onde você está agora.
+
+Príncipio de riqueza
+Você só poderá crescer de verdade se estiver na sua zona de conforto.
+As pessoas usam o pensamento positivo pra fingir que tá tudo bem.
+
+Se sua meta na vida é se sentir confortável nunca ficará rico.
+Desconfortável, indeciso e intimidado.
+
+Pratique agir apesar do medo.
+Mark Twain - Já tive milhares de problemas na minha vida muito dos quais nunca aconteceram de fato.
+
+Príncipio de riqueza
+Saber treinar e manejar a própria mente é o maior talento que se pode ter na vida tanto em termos de felicidade como de 
+sucesso.
+
+Note como sua mente cria pensamentos desfavaráveis ao seu sucesso.
+Determine que você governa seus pensamentos.
+Você é o capitão do navio.
+Descarte pensamentos desfavoráveis.
+Instale pensamentos vencedores.
+
+Nenhum pensamento mora de graça na cabeça de ninguém.
+Pensamentos que lhe dão poder e os que minam o seu poder.
+Alimente os que te fortalece.
+
+Pensamento poderoso.
+Nada tem significado exceto aquele que nós mesmos atribuímos.
+Reconhece que os pensamentos não são verdadeiros mas sim úteis.
+
+Declaração:
+eu ajo apesar do medo eu ajo da duvida, preocupação, inconveniência e desconforto.
+
+Ações:
+1 - Liste os medos sobre dinheiro e riqueza.
+2 - Pratique sair da sua zona de conforto.
+3 - Aplique o pensamento poderoso.
 
 
+## Arquivo de riqueza 17.
+```
+16 - As pessoas ricas aprendem e se aprimoram o tempo todo as pessoas de mentalidade pobre acreditam que já sabem tudo.
+```
+As palvras mais perigosas "eu já sei".
+As pessoas de mentalidade pobre estão sempre tentando provar que estão certas.
+Ou você está certo ou você é rico.
+Ou você está certo ou você é feliz.
+
+Príncipio de riqueza
+Ou você está certo ou você é rico.
+
+Os que aprendem herdaram a Terra.
+Se você acha que a instrução é cara experimente a ignorância.
+
+Príncipio de riqueza
+Ser -> Fazer -> Ter
+Ter -> Fazer -> Ser
+
+Você é bom no que faz?
+Para ganhar o máximo você tem que ser o máximo.
+Aprenda com quem tem resultados.
+
+Declaração:
+Eu me comprometa a aprender e crescer o tempo todo.
+Eu tenho uma mente milionária.
+
+Ação:
+Comprometa-se com seu conhecimento.
+Leia livros e faça cursos.
 
 
-
+```
+🎯 O que eu faço agora.
+```
+Faça os exercícios e as declarações.
+Memorizar os arquivos de riqueza.
+A repetição é a mãe do aprendizado.
+Faça os exercícios de ação.
+Ouça o audio livro uma vez por mês.
+Coragem -> Próposito -> Alegria.
 
 
 
